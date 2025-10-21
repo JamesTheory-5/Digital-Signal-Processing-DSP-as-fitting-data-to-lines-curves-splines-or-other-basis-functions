@@ -1028,3 +1028,8 @@ If you want, I can sketch how this “digital algebraic universe” could be tre
 
 
 [![Video Title](https://img.youtube.com/vi/2TrLOGEbNNQ/0.jpg)](https://www.youtube.com/watch?v=2TrLOGEbNNQ)
+
+YOU WILL BE PETRIED - TURNED TO STONE
+
+[![Video Title](https://img.youtube.com/vi/VNHKEZG8Cw8/0.jpg)](https://www.youtube.com/watch?v=VNHKEZG8Cw8)
+
